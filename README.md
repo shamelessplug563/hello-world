@@ -2,4 +2,4 @@
 congenial-octo-enigma
 Hello there
 
-I like to fish, workout, work hard and help others.
+I'm a hard working individual with mulptile hobbies and characterisitics.
